@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lizzyisabanana
+- 👀 I’m interested in photosynthesizing
+- 🌱 I’m currently learning how to do nothing
+- 💞️ I’m looking to collaborate on ur mom  
+- 📫 How to reach me by walking to me
